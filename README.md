@@ -17,4 +17,9 @@ DON'T discuss ships around me that includes brighteyes... since she's already ma
 
 ![image alt](https://github.com/Brighteyes-x3/ALL-ABOUT-ME-ME-ME-/blob/cf2366ffcff17520a5acd5e3d179cdbfa288c83e/987fe28d28a8dae9b335ffc52f92df38.jpg)
 -------
-# I'm a chill person... i don't really care about anything- just... don't get weird around me?
+# IWC!
+- i'm a sensitive person, i WILL get overwhelmed if theres too many people trying to talk to me
+- i'm moody- so PLEASE don't get offended if i say something mean- :(
+-------
+HAI! I DRAWWW! I CAN DO COMS FOR FREE! 
+- IF I'M IN THE MOOD-
